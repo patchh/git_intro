@@ -1,1 +1,2 @@
 Hannah Patchigoolla
+almondh@oregonstate.edu
